@@ -1,4 +1,4 @@
-
+custom Scripts for blue lock rivals offers the most advanced blue lock rivals Script, with auto-heal and fly. Perfect for dominating any match.
 
 
 
